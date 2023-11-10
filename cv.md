@@ -20,4 +20,4 @@ Frontend developer since 2021
 
 TeachMeSkills school
 
-I have been learning English for 3 years. Now at upper-intermediate level
+I have been learning English for 3 years. Now at upper-intermediate level.
